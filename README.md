@@ -1,1 +1,0 @@
-# geekation_orientation
